@@ -1,4 +1,2 @@
 # animatorski.github.io
-My blog/website.
-
-btw i know my code sucks haha
+oh hi i didn't expect you here lol
